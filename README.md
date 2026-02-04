@@ -1,1 +1,1 @@
-# newzealandwebsite.github.io
+https://retered.github.io/rutherfordhighschool.github.io/
